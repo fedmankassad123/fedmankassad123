@@ -2,8 +2,8 @@
 - 👀 I’m interested in apex legends and fortnite
 - 🌱 I’m currently learning spanish
 - 💞️ I’m looking to collaborate on .
-- 📫 How to reach me ...
-- 😄 Pronouns: ...
+- 📫 How to reach me 110 niven drive yellowknife
+- 😄 Pronouns: ?
 - ⚡ Fun fact: im really godd at sport
 
 <!---
